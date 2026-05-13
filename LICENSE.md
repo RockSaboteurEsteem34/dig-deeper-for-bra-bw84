@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots Scripts advanced offers the most advanced dig deeper for brainrots Script, with god mode and invisibility. Perfect for
 
 
 
